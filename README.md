@@ -2,29 +2,34 @@
 
 # . names
 
-Welcome to my GitHub profile!
+Cinna (mainly .) , rotten , moon , cinnamon
 
-## 🎮 About Me
+## . About Me
 
-* 🌸 I play Pony Town
-* 🎨 I love making skins & roleplaying
-* 🐾 Favorite species: Pegasus / Unicorn / etc.
+* age : 16
+* Prns : she / her
+* berriromantic - aego—aroace
+* Trust and anger issues
 
-## 💬 Pony Town Info
+## . comfort characters // yumes
 
-* 🧍 Name: [Your Pony Name]
-* 🌍 Server: Safe / 18+ / Custom
-* 🏷️ Style: Roleplay / Chill / Fandom
+* black forest cookie
+* abyss monarch cookie
+* Longan dragon cookie
+* bamboo blade cookie
+* blackberry cookie
+* Mafioso
+* Timekeeper cookie
+* Doughael
 
-## ✨ Interests
+## . dnis
 
-* Anime / Games / Art / Memes
+* basic criteria
+* yumeship doubles
+* shadow milk fans
+* forsaken fans
 
-## 📫 Contact Me
+## . if you wanna be friends
 
-* Discord: [your tag]
-* Pony Town: come say hi!
-
----
-
-⭐ Thanks for visiting my profile!
+* Discord: " rottencinnamon. "
+* Roblox : r_ockstar86
