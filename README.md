@@ -1,17 +1,18 @@
 ![wow](https://files.catbox.moe/ppq6qn.png)
 
-# . names
+# :¨ ·.· ¨:
+`· . ୨୧ . names
 
 Cinna (mainly .) , rotten , moon , cinnamon
 
-## . About Me
+## ˖˚˳♡ . About Me
 
 * age : 16
 * Prns : she / her
 * berriromantic - aego—aroace
 * Trust and anger issues
 
-## . comfort characters / yumes
+## ˖˚˳♡ . comfort characters / yumes
 
 * black forest cookie
 * abyss monarch cookie
@@ -22,14 +23,14 @@ Cinna (mainly .) , rotten , moon , cinnamon
 * Timekeeper cookie
 * Doughael
 
-## . dnis
+## ₊˚ෆ . dnis
 
 * basic criteria
 * yumeship doubles
 * shadow milk fans
 * forsaken fans
 
-## . if you wanna be friends
+## 𓂃˖♪彡 . if you wanna be friends
 
 * Discord: " rottencinnamon. "
 * Roblox : " r_ockstar86 "
