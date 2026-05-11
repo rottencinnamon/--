@@ -11,7 +11,7 @@
 
 * age : 16
 * Prns : she / her
-* berriromantic - aego—aroace
+* berriromantic - aego aroace
 * Trust and anger issues
 
 ## ˖˚˳♡ . comfort characters / yumes
