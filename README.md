@@ -37,4 +37,4 @@
 
 * Discord: " rottencinnamon. "
 * Roblox : " r_ockstar86 "
-* PLEASE do not immediately approach me i am VERY anxious and socially awkward when meeting new people , send me a whisper at best !!
+* PLEASE iwc i am VERY anxious and socially awkward when meeting new people , send me a whisper at best !! if i don't answer, i'm not interested
