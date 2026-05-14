@@ -14,6 +14,7 @@
 * berriromantic - aego aroace
 * Trust and anger issues
 * introvert
+* AVPD and ASPD
 * i'm not talkative unless i'm with close friends
 
 ## ˖˚˳♡ . comfort characters / yumes
